@@ -2,7 +2,7 @@ EXT. BASEBALL FIELD - DAY
 
 Sun is shining, puffy white clouds in the sky. Scene is idyllic
 
-FAN
+FAN  
 (in that choppy voice that happens when you speak into a fan)
 
 Go loooooooong
