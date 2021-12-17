@@ -9,6 +9,7 @@ Go loooooooong
 
 GOAT  
 (Straining to poop)
+hmmmmmmmmm
 
 WINE GLASS  
 (running back and forth to left and right, wine sloshing around)
@@ -38,42 +39,11 @@ All the Nouns watch with bated breath as the turd flies through the air. Wine Gl
 
 Ketchup bottle is spraying ketchup and it's raining down on everyone, Fan Noun's blades are covered in goat poop.
 
-GARLIC
+GARLIC  
 (smiling)
 It's another beautiful day in Noun Town
+
 [opening credits]
-
-
-Exterior, Day, Stadium:
-
-The nouns are filing into a large stadium
-In the middle of the stadium is a podium with a jerry-rigged teleporter device. The stadium has a large LED screen overlooking the field
-Elsewhere in town, the ______ noun is ringing the bell noun 
-As the nouns file into the stadium, the garlic noun picks up the traffic cone noun, and puts the small end to his mouth like a megaphone:
-"5 minutes to Noun O'Clock. Take your seats, take your seats everyone"
-Helicopter: flies down into her seat
-LIPS are applying lipstick
-DOG: It's gonna be a dog. i know it. i just know it! tail wagging
-KING Noun: I am ready for you, my queen!
-
-The clock ticks down:
-"Ten, Nine, Eight"
-
-The jerry-rigged teleporter starts to power up, all the nouns look on in anticipation
-
-"three, two, one"
-
-all the nouns are looking at each other in anticipation...
-but nothing happens
-
-a hush falls over the crowd
-
-the lips that were previously a smile, are now a frown
-
-Suddently, on the large LED screen:
-
-
-
 
 
 
