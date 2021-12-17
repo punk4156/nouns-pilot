@@ -2,37 +2,33 @@ EXT. BASEBALL FIELD - DAY
 
 Sun is shining, puffy white clouds in the sky. Scene is idyllic
 
-FAN\
+FAN  
 (in that choppy voice that happens when you speak into a fan)
 
 Go loooooooong
 
-GOAT
-
+GOAT  
 (Straining to poop)
 
-WINE GLASS
-
+WINE GLASS  
 (running back and forth to left and right, wine sloshing around)
 
-KETCHUP
-
+KETCHUP  
 Come on Goat, you got this one, you can do it
 
-GOAT
-
+GOAT  
 (straining even harder)
 
 must...concentrate...
 
-FAN
+FAN  
 (yelling to wine glass)
 to the left....a little more, a little more...
 
-GOAT
+GOAT  
 (now bright red, finally poops into fan)
 
-FAN
+FAN  
 Incoming!
 
 Ker-ching! The fan's blades launch the turd and it goes screaming through the air
