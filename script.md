@@ -9,16 +9,21 @@ FAN
 Go loooooooong
 
 GOAT
+
 (Straining to poop)
 
 WINE GLASS
+
 (running back and forth to left and right, wine sloshing around)
 
 KETCHUP
+
 Come on Goat, you got this one, you can do it
 
 GOAT
+
 (straining even harder)
+
 must...concentrate...
 
 FAN
