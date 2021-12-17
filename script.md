@@ -3,6 +3,7 @@ EXT. BASEBALL FIELD - DAY
 Sun is shining, puffy white clouds in the sky. Scene is idyllic
 
 FAN
+
 (in that choppy voice that happens when you speak into a fan)
 Go loooooooong
 
@@ -39,7 +40,6 @@ Ketchup bottle is spraying ketchup and it's raining down on everyone, Fan Noun's
 GARLIC
 (smiling)
 It's another beautiful day in Noun Town
-
 [opening credits]
 
 
