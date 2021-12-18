@@ -1,3 +1,3 @@
 # nouns-pilot
 
-https://fountain.io/syntax#section-action
+https://fountain.io/syntax
